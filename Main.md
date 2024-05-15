@@ -8,4 +8,3 @@
 [U.S. Department of Education Database of Accredited Postsecondary Institutions and Programs ](https://ope.ed.gov/accreditation)
 
 
-https://docs.google.com/presentation/d/1Ep6DcBJa-BuSW3OuvAHt6MK_OXD2cV_M/edit?usp=drivesdk&ouid=108774752572232901238&rtpof=true&sd=true
