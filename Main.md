@@ -12,4 +12,4 @@
 [ЛІТЕРАТУРА](https://docs.google.com/presentation/d/1cltM1tHZqpdkLtb_K0O1r-udTvx6Bd83n9-VFRhdU2w/edit?usp=drivesdk)
 
 
-
+https://docs.google.com/presentation/d/1PFVv1jrsmxzvjQQA6MysX6ZApbc0S2t5RA2indW6pvM/edit?usp=drivesdk
