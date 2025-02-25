@@ -1,1 +1,1 @@
-https://docs.google.com/presentation/d/1x1-4NLIVdeyrKxgwf9AOB3R0N_RGx_KW/edit?usp=drivesdk&rtpof=true&sd=true
+https://docs.google.com/presentation/d/e/2PACX-1vRv4qfgzA76XPw9wHob_9DfpULUyMLaSqNJ7aR6vG76ZXk2lCc_uRf5O8v91qQuzGl8EKmn_EhVhkfg/pub?start=false&loop=false&delayms=3000
